@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AUPD930825MYNYXN05
+AUPD930825MYNYXN05
